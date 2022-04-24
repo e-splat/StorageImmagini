@@ -1,2 +1,2 @@
 # Storage di tutte le mie Immagini
-## NUlla di bello quà, tutto inutile al cà!!
+## Nulla di bello qua, tutto inutile al cà!!
